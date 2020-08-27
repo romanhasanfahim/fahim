@@ -1,0 +1,2 @@
+# fahim
+hello I am fahim. I am from Bangladesh. I am 26 years old. I am freelancer. I am expert in all sort of Graphic Designing work. Mostly in Flyer Designing, Brochure Designing, Logo Designing, Business Card Designing and packaging design and baground remove and label design and cartoon vactor and anything else that can be done on Adobe Photoshop and Adobe Illustrator. Professional Experience of 3years in Designing.
